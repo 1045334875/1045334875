@@ -12,7 +12,7 @@ Here are some ideas to get you started:
 - 👯 Another depository: https://www.yuque.com/parfaity
 - 🤔 (ok, be happy maybe)
 - 💬 Ask me about anything 
-- 📫 How to reach me: ~~sleep and dream~~ QQnumber
+- 📫 How to reach me: ~~sleep and dream~~ 
 - 😄 Pronouns: I love eating and sleeping! I love sea, flower, sun, and friends.
 - ⚡ Fun fact: Coding is not fun actually, but be skilled in something is really cool.
 
