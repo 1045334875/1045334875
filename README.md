@@ -9,10 +9,7 @@ Here are some ideas to get you started:
 
 - 🔭 I’m ty from ZJU
 - 🌱 Major in IS (Information security).
-- 👯 Another depository: https://www.yuque.com/parfaity
-- 🤔 (ok, be happy maybe)
 - 💬 Ask me about anything 
-- 📫 How to reach me: ~~sleep and dream~~ 
-- 😄 Pronouns: I love eating and sleeping! I love sea, flower, sun, and friends.
+- 😄 Pronouns: Try everything! Just do it!
 - ⚡ Fun fact: Coding is not fun actually, but be skilled in something is really cool.
 
